@@ -9,5 +9,5 @@ https://seulgiya.github.io/
 3. Ahmad Faizal Fahmi
 https://zallxd.github.io/profilporrofolio/
 
-4.Dhimas akbar pangestu wani
+4. Dhimas akbar pangestu wani
 https://crazyzone2112.github.io/portofoliodhimas
